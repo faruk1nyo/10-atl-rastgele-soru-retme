@@ -1,0 +1,1 @@
+# 10-atl-rastgele-soru-retme
